@@ -1,0 +1,1 @@
+mantıklı kadın
